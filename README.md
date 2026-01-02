@@ -18,7 +18,7 @@
 
 ###
 
-<p align="center"> BYI: no tone tags + edgy humor tendencies, i avoid fandoms i don't particularly like (hazbin, roblox, tadc, genshin, etc etc) </p>
+<p align="center"> BYI: I don't use tone tags, I have edgy humor + oldhead + mild gatekeepy tendencies, I avoid fandoms I don't particularly like (hazbin, roblox, tadc, genshin, etc etc) </p>
 
 ###
 
